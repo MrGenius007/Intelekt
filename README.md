@@ -1,0 +1,2 @@
+# Intelekt
+Intelektual ta’lim
